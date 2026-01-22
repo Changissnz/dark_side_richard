@@ -193,3 +193,47 @@ matters on Richard.
 <img width="1024" height="1024" alt="Gemini_Generated_Image_d51dgvd51dgvd51d" src="https://github.com/user-attachments/assets/572be74e-2409-4ede-b630-c818fd5cdfee" />
 
 -------------------------------------------------------------------------------------------------------------
+
+## PART FOUR: Therapy for Shin Apath Richard 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_fbzpajfbzpajfbzp" src="https://github.com/user-attachments/assets/1757cbb6-cea7-4d3a-9e8a-8b87b98cf665" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_g3ppweg3ppweg3pp" src="https://github.com/user-attachments/assets/fd96434b-37e1-4107-a2d0-561443b6f5fa" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_308bz4308bz4308b" src="https://github.com/user-attachments/assets/bc200f1b-5590-4a2f-bf03-ee00b1cdc3c7" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_dguo0dguo0dguo0d" src="https://github.com/user-attachments/assets/7af104e1-3caa-43dc-8555-0214d34989d8" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_8ubo9n8ubo9n8ubo" src="https://github.com/user-attachments/assets/9e0df1e8-863d-4182-9405-24b8ced910ca" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_maqtoxmaqtoxmaqt" src="https://github.com/user-attachments/assets/bc765f93-26e1-4194-b04c-60fc4358afc5" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_qe3362qe3362qe33" src="https://github.com/user-attachments/assets/4d96af63-e39a-4cd6-a89d-718e253db2a2" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_nk4f3nnk4f3nnk4f" src="https://github.com/user-attachments/assets/7e52fa3d-de2c-4b85-ac2f-e5fd4ab73b47" />
+
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_u7v8cou7v8cou7v8" src="https://github.com/user-attachments/assets/5fd7d4a2-bcee-4f81-b4bf-8484c58c88ca" />
+
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_sibznesibznesibz" src="https://github.com/user-attachments/assets/1a9f388b-0b8c-48d4-964a-8ec099f03c72" />
+
+-------------------------------------------------------------------------------------------------------------
