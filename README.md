@@ -341,3 +341,51 @@ matters on Richard.
 -------------------------------------------------------------------------------------------------------------  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_2qnd522qnd522qnd" src="https://github.com/user-attachments/assets/49dfccf3-2e59-4a5c-ab7e-2ae44ba5789c" />
+
+-------------------------------------------------------------------------------------------------------------
+
+## PART SEVEN: Shin Apath Richard Explains His Darkness 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_3rb54g3rb54g3rb5" src="https://github.com/user-attachments/assets/d69b8f86-6756-403d-b0d8-da763a3389a7" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_giead3giead3giea" src="https://github.com/user-attachments/assets/e6f7c374-1eab-4789-9e18-592a4182a5cc" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_dige74dige74dige" src="https://github.com/user-attachments/assets/934bfba5-36c8-43d4-bf57-4e838bdd06b4" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_5ogmzh5ogmzh5ogm" src="https://github.com/user-attachments/assets/a19aa97e-96dc-4b32-ab2d-424e01e3d92f" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_he4wfqhe4wfqhe4w" src="https://github.com/user-attachments/assets/3eba6e7f-04e0-42cc-87ca-d375c61c69dd" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_jyvpuxjyvpuxjyvp" src="https://github.com/user-attachments/assets/6eafaae6-d5fd-4f37-a337-e3440c2efc5c" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_h6qjwzh6qjwzh6qj" src="https://github.com/user-attachments/assets/2a058c17-8b00-4a6a-a5ed-8fc2b5d5bfa1" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_d00m6vd00m6vd00m" src="https://github.com/user-attachments/assets/5dc645cf-cbb1-4800-95b9-bb137f24fb10" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_yq1qouyq1qouyq1q" src="https://github.com/user-attachments/assets/8cb754db-c5ff-4a3f-bc67-2083a02b969e" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_i4bmfri4bmfri4bm" src="https://github.com/user-attachments/assets/6ac3b006-61d4-41ab-9d30-98cffa8a8b9e" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_hvd0vvhvd0vvhvd0" src="https://github.com/user-attachments/assets/95cd1fee-4bf4-45aa-9c3e-0ec4fedf5dfe" />
+
+-------------------------------------------------------------------------------------------------------------
