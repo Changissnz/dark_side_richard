@@ -292,11 +292,11 @@ matters on Richard.
 
 -------------------------------------------------------------------------------------------------------------
 
-<img width="1024" height="1024" alt="Gemini_Generated_Image_qcz0ntqcz0ntqcz0" src="https://github.com/user-attachments/assets/59ff2361-4d3c-4087-b96a-9eda1aad790e" />
+<img width="1024" height="1024" alt="Gemini_Generated_Image_66k6fm66k6fm66k6" src="https://github.com/user-attachments/assets/fb025160-580d-4729-bcc0-f6d437a5c80b" />
 
 -------------------------------------------------------------------------------------------------------------
 
-<img width="1024" height="1024" alt="Gemini_Generated_Image_66k6fm66k6fm66k6" src="https://github.com/user-attachments/assets/fb025160-580d-4729-bcc0-f6d437a5c80b" />
+<img width="1024" height="1024" alt="Gemini_Generated_Image_qcz0ntqcz0ntqcz0" src="https://github.com/user-attachments/assets/59ff2361-4d3c-4087-b96a-9eda1aad790e" />
 
 -------------------------------------------------------------------------------------------------------------
 
@@ -305,3 +305,31 @@ matters on Richard.
 -------------------------------------------------------------------------------------------------------------
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_8r8nrq8r8nrq8r8n" src="https://github.com/user-attachments/assets/b4b9c45b-6714-49af-8553-5032f9b93537" />
+
+-------------------------------------------------------------------------------------------------------------  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_1o0qac1o0qac1o0q" src="https://github.com/user-attachments/assets/4bf3e7db-43a6-488c-ba50-b96c81042f3d" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_aov98faov98faov9" src="https://github.com/user-attachments/assets/0658145d-cc22-4ade-b3b1-6cb7a3d55d95" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_49ewzw49ewzw49ew" src="https://github.com/user-attachments/assets/19c52bbc-966d-4d19-8388-be2af05144ee" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_equg8fequg8fequg" src="https://github.com/user-attachments/assets/8e171b1c-c564-4f4a-a317-5f9f73227d83" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_rm5ym2rm5ym2rm5y" src="https://github.com/user-attachments/assets/bb3351cf-d634-45cf-8c0c-c5686659e3ee" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_3tapsq3tapsq3tap" src="https://github.com/user-attachments/assets/3071990d-2fdb-4bab-9407-e1488d2928e9" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_f1eei6f1eei6f1ee" src="https://github.com/user-attachments/assets/2d14fe5f-93c5-461f-a9dd-4c030cb78ff1" />
