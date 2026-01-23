@@ -346,7 +346,7 @@ matters on Richard.
 
 ## PART SEVEN: Shin Apath Richard Explains His Darkness 
 
-<img width="1024" height="1024" alt="Gemini_Generated_Image_hvd0vvhvd0vvhvd0" src="https://github.com/user-attachments/assets/95cd1fee-4bf4-45aa-9c3e-0ec4fedf5dfe" />
+<img width="1024" height="1024" alt="Gemini_Generated_Image_yq1qouyq1qouyq1q" src="https://github.com/user-attachments/assets/8cb754db-c5ff-4a3f-bc67-2083a02b969e" />
 
 -------------------------------------------------------------------------------------------------------------
 
@@ -354,7 +354,7 @@ matters on Richard.
 
 -------------------------------------------------------------------------------------------------------------
 
-<img width="1024" height="1024" alt="Gemini_Generated_Image_yq1qouyq1qouyq1q" src="https://github.com/user-attachments/assets/8cb754db-c5ff-4a3f-bc67-2083a02b969e" />
+<img width="1024" height="1024" alt="Gemini_Generated_Image_hvd0vvhvd0vvhvd0" src="https://github.com/user-attachments/assets/95cd1fee-4bf4-45aa-9c3e-0ec4fedf5dfe" />
 
 -------------------------------------------------------------------------------------------------------------
 
