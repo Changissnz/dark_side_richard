@@ -437,3 +437,31 @@ matters on Richard.
 -------------------------------------------------------------------------------------------------------------
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_y8v89yy8v89yy8v8" src="https://github.com/user-attachments/assets/288adbe6-868e-4988-8919-239e7b67bb59" />
+
+-------------------------------------------------------------------------------------------------------------  
+
+## PART NINE: Shin Apath Richard Gets Promoted  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_tsqrk6tsqrk6tsqr" src="https://github.com/user-attachments/assets/27e83d28-f3df-40e4-9966-dab2dee9a871" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_wjc5prwjc5prwjc5" src="https://github.com/user-attachments/assets/1fd6ce01-4bbc-4e32-9b38-7ca51bce45ae" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_ms4pzyms4pzyms4p" src="https://github.com/user-attachments/assets/d07efed4-6358-4189-9f01-8f6c15bf5e48" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1344" height="768" alt="Gemini_Generated_Image_7jxwzf7jxwzf7jxw" src="https://github.com/user-attachments/assets/7cb4ab49-8f97-47fe-b94a-695c5ed61420" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_xtixt5xtixt5xtix" src="https://github.com/user-attachments/assets/a9469829-ea32-4bd2-a81d-e53338bfc0da" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_vpowqsvpowqsvpow" src="https://github.com/user-attachments/assets/593aa3cb-1caf-4aea-88cc-1e1bac30d3f2" />
+
+-------------------------------------------------------------------------------------------------------------
