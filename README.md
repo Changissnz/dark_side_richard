@@ -1,4 +1,5 @@
 # Dark Side Richard
+## concluded: 1/24/26 
 
 Richard had been disappointed so many times. Some things were bound for Richard because of these bad times. 
 
