@@ -465,3 +465,33 @@ matters on Richard.
 <img width="1024" height="1024" alt="Gemini_Generated_Image_vpowqsvpowqsvpow" src="https://github.com/user-attachments/assets/593aa3cb-1caf-4aea-88cc-1e1bac30d3f2" />
 
 -------------------------------------------------------------------------------------------------------------
+
+## PART TEN: Shin Apath Richard is the Red Dragon  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_pntzdzpntzdzpntz" src="https://github.com/user-attachments/assets/92a4bea9-a92b-4613-b229-a6bef5592f16" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_m1wgycm1wgycm1wg" src="https://github.com/user-attachments/assets/1dad5e8b-1d84-493e-9c3d-574665c0d099" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_zes5ifzes5ifzes5" src="https://github.com/user-attachments/assets/6b7fa314-7ad4-48f7-8f6e-522bfaef6e02" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_1hr7r1hr7r1hr7r1" src="https://github.com/user-attachments/assets/edda445b-25ec-4e54-884d-9371898c3451" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_lm8pdalm8pdalm8p" src="https://github.com/user-attachments/assets/ca50b234-5736-421a-9b88-b634c42c3b4f" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_8ujlr18ujlr18ujl" src="https://github.com/user-attachments/assets/9e087b95-9550-4af7-ac89-5dd202eecb04" />
+
+-------------------------------------------------------------------------------------------------------------
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_z6ftijz6ftijz6ft" src="https://github.com/user-attachments/assets/39af3a94-3d6e-4d1f-9cb7-05f27991a3d0" />
+
+-------------------------------------------------------------------------------------------------------------
